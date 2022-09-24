@@ -10,7 +10,7 @@
 - 💬&nbsp;Ask me about **Automation Test, CICD**
 
 - ⚡&nbsp;I am Vietnamese, and I traveled a lot to Thailand, Singapore, Switzerland, German
-- I am interested in Football, beer
+- ⚽️I am interested in Football, beer
 
 <p align="left">
     <a href="https://www.linkedin.com/in/anh-mai-24aba054/" target="blank">
